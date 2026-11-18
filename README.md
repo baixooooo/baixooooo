@@ -24,7 +24,7 @@ currently building, learning, and making things a little better each time.
 
 <br /><br />
 
-<img src="https://count.getloli.com/@n1khil-choudhary?theme=asoul&padding=1&offset=0&align=top&scale=1&pixelated=1&darkmode=auto&prefix=1" alt="Profile visitor counter — Bleach theme" />
+<img src="https://count.getloli.com/@baixooooo?theme=asoul&padding=1&offset=0&align=top&scale=1&pixelated=1&darkmode=auto&prefix=1" alt="Profile visitor counter — Bleach theme" />
 
 </div>
 
